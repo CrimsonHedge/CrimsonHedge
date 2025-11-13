@@ -3,9 +3,12 @@
 
 ★ Crimson/Shadow - 19 ★
 
+
 ★ Spanish/English ★
 
 ★ Shadow kin/comf (plus simp lmao) ★
+
+★ Demisexual/Demiromantic ★ 
 
 ★ Single (will stay that way for a while) ★
 
