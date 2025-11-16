@@ -37,7 +37,7 @@
 
 ⊘ Bad people (pedos, zoos, transphobes, homophobes, etc)
 
-⊘ Politics
+⊘ Politics or religion due to their controversial nature
 
 ⊘ Drama
 <img src="https://64.media.tumblr.com/828d4206081aa44f8677dbab3b9c253f/92b877abbd18bf58-24/s2048x3072/702813c05ce5d710eb4fb2574c36784a1e07be42.pnj">
